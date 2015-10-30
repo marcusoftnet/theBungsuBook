@@ -66,12 +66,26 @@ They seem surprised now. I ask them if they have been on the second floor, but t
 
 Once in the office I describe the situation for the team and they are appalled. We hold a short meeting and decide to inform the leaders of the Salvation Army in Indonesia that we are taking action. 
 
-We hold a quick meeting starting in our priorities for the situation; 
+We hold a quick meeting and start by stating our priorities for the situation and the work ahead; 
 
 1. Patient safety
 2. Staff safety
 3. Start to make money again
 
+We also make a short-term action plan consisting of the absolute emergency things we need to do. I'm given the "Clean up second floor" task and hurries back to the hospital. At this point nothing has been done to clear up the water filled debris that is soaking the floor of the second floor. Which in turn causes mold, leaking and damages to the wall. 
+
+Other things we are considering at this point is the insurance situation for operating the hospital under these conditions and the contract / responsibility of the builders. 
+
+As I go back up to the second floor I'm still wearing my nice shoes and the Salvation Army uniform. "No time to change" is all can think and grab one of two (!) shovels that are present on the premises. I walk up to the second floor, walks into the closest room, that used to be a ward with patients now covered in moist debris, and I start to dig. 
+
+<img style="float: right; padding: 5px" width="40%" src="img/cleaning_15_percent_one_room.jpg">
+A janitor that doesn't speak a single word of English joins me and with my stumbling Indonesian we start to clear the room, bucket by bucket. After three hours we can see the floor of ca 20% of the room. You can see the picture to the right. 
+
+We realize that this will take too long time to clean up. Something else needs to be done. Also, the sun is setting and soon we can't see where we are walking. We quit for the day and I walk back home. 
+
+It's a heavy day and the thought from the morning comes back to me:
+
+>The hospital is dead. We will never rise again  
 
 
 
